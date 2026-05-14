@@ -1,4 +1,4 @@
-#  
+#  elite aura ascension Scripts is the best aura ascension Script, featuring undetectable and auto-upgrade. Safe and powerful for all your needs.
 
 
 
